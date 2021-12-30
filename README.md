@@ -1,6 +1,7 @@
-KFCDH 最新网址
+KFCDH.COM 官网域名：http://www.kfcdh.com
 
-找回域名邮箱
-057500@gmail.com
+发布页：https://github.com/kfcdhcom/fabuye
 
-网址随时可能会被和谐，务必收藏或分享本页以获取最新网址，收藏访问不迷路！
+邮箱：imer@live.cn
+
+如遇打不开，可以发送任何信息到本邮箱，会自动回复最新地址。
